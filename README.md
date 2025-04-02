@@ -1,0 +1,2 @@
+# Sustainable-Interaction-Design
+AICRASTINATOR: AI + PROCRASTINATION + INTERACTIVITY
